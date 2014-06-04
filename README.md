@@ -1,3 +1,1 @@
-modified again
-
-tudom, hogy van nalatok hanyas....
+tele a here
